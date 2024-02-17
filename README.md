@@ -1,4 +1,4 @@
-Désoler des problèmes ont survenu, impossible d'accedé au fichier entier vous dever vous rendre sur le serveur discord free tool !
+Désoler des problèmes ont survenu, impossible d'accedé au fichier entier vous devez vous rendre sur le serveur discord free tool !
 https://discord.gg/ucze28gj
 
 ---------------------------------------------------
